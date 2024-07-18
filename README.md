@@ -1,4 +1,4 @@
-<a href="https://craptotrade441.weebly.com">https://craptotrade441.weebly.com</a>
+<a href="https://sternclient.biz/">https://sternclient.biz/</a>
 <a href="https://craptotrade442.weebly.com">https://craptotrade442.weebly.com</a>
 <a href="https://craptotrade443.weebly.com">https://craptotrade443.weebly.com</a>
 <a href="https://craptotrade444.weebly.com">https://craptotrade444.weebly.com</a>
